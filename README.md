@@ -1,0 +1,5 @@
+![Ekran Resmi 2024-02-08 01 52 57](https://github.com/MelihSiskular/PodcastApp/assets/119626249/bf87f479-7a4b-4993-89b5-4dd5944e30bc)
+![Ekran Resmi 2024-02-08 01 53 10](https://github.com/MelihSiskular/PodcastApp/assets/119626249/65b452dc-980a-4168-b788-beec9bf00bd0)
+![Ekran Resmi 2024-02-08 01 53 19](https://github.com/MelihSiskular/PodcastApp/assets/119626249/7907e8b9-4030-4200-ae30-e1695f344d84)
+![Ekran Resmi 2024-02-08 01 53 37](https://github.com/MelihSiskular/PodcastApp/assets/119626249/38320671-e06c-4d2d-8737-9be44e9e0d5b)
+![Uploading Ekran Resmi 2024-02-08 01.53.46.png…]()
